@@ -1,1 +1,0 @@
-# keverek_szamitas
